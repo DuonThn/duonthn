@@ -1,4 +1,4 @@
-<a href="https://ibb.co/378Dxph"><img src="https://i.ibb.co/nbVHX7k/67542410-p0.jpg" alt="67542410-p0" border="0"></a><br /><a
+<a href="https://ibb.co/378Dxph"><img src="https://i.ibb.co/nbVHX7k/67542410-p0.jpg" alt="67542410-p0" border="0">
 
 ## Hi My is Dekisugi btw u call me at Thien & KoroSensei
 
