@@ -1,5 +1,4 @@
-[url=https://ibb.co/378Dxph][img]https://i.ibb.co/nbVHX7k/67542410-p0.jpg[/img][/url]
-[url=https://vi.imgbb.com/]up host free[/url]
+<a href="https://ibb.co/378Dxph"><img src="https://i.ibb.co/nbVHX7k/67542410-p0.jpg" alt="67542410-p0" border="0"></a><br /><a target='_blank' href='https://vi.imgbb.com/'>up host free</a><br />
 
 ## Hi My is Dekisugi btw u call me at Thien & KoroSensei
 
