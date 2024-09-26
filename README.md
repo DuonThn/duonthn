@@ -1,16 +1,15 @@
-## Hi there 👋
+[url=https://ibb.co/378Dxph][img]https://i.ibb.co/nbVHX7k/67542410-p0.jpg[/img][/url]
+[url=https://vi.imgbb.com/]up host free[/url]
 
-<!--
-**DuonThn/duonthn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## Hi My is Dekisugi btw u call me at Thien & KoroSensei
 
-Here are some ideas to get you started:
+My profile ^^
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
++ Am a student in HCMC and i was 17 year old
++ I like a computer hardware and tinkering with operating systems and tweaked :3
++ Whenever I'm bored, I read manga or watch anime to relieve boredom. Or maybe I play with my computer :))
++ Most of my games like: Osu!, Honkai Impact 3rd, Indie Game
+
+
+My life is pretty boring so there's nothing to say :((
+And that's it ^^ hehe
