@@ -1,15 +1,11 @@
 <a href="https://ibb.co/378Dxph"><img src="https://i.ibb.co/nbVHX7k/67542410-p0.jpg" alt="67542410-p0" border="0">
 
-## Hi My is Dekisugi btw u call me at Thien & KoroSensei
+## Hi, my name is Dekisugi, but you can call me Thien or KoroSensei. 
 
-My profile ^^
++ Here's a bit about my profile:
 
-+ Am a student in HCMC and i was 17 year old
-+ I like a computer hardware and tinkering with operating systems and tweaked :3
-+ Whenever I'm bored, I read manga or watch anime to relieve boredom. Or maybe I play with my computer :))
-+ Most of my games like: Osu!, Honkai Impact 3rd, Indie Game
+I am a 17-year-old student in Ho Chi Minh City. I have a keen interest in computer hardware and enjoy tinkering with operating systems. 
+Whenever I'm bored, I like to read manga or watch anime to pass the time. Sometimes, I also play on my computer! 
+My favorite games include Osu!, Honkai Impact 3rd, and various indie games. Honestly, my life is pretty boring, so there's not much else to share. 
 
-
-My life is pretty boring so there's nothing to say :((
-
-And that's it ^^ hehe
+And that's it! ^^ Hehe
