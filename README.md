@@ -9,3 +9,13 @@ Whenever I'm bored, I like to read manga or watch anime to pass the time. Someti
 My favorite games include Osu!, Honkai Impact 3rd, and various indie games. Honestly, my life is pretty boring, so there's not much else to share. 
 
 And that's it! ^^ Hehe
+
+Contact:
++ Discord: @duonthn (Dekisugi)
++ Telegram: duonthn (Thiên Dương)
++ Lotus Chat: @thienduong
++ Reddit: u/DuonThn
++ X: @DekisugiOsu
++ Insta/Threads: ig.duonthn
++ Osu!: https://osu.ppy.sh/users/33905196
++ Hi3: Dekisugi (Global) KoroSensei (Sea)
