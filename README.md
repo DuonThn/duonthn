@@ -19,3 +19,4 @@ Contact:
 + Insta/Threads: ig.duonthn
 + Osu!: https://osu.ppy.sh/users/33905196
 + Hi3: Dekisugi (Global) KoroSensei (Sea)
++ My Profile: guns.lol/duonthn
