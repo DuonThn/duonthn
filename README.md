@@ -1,5 +1,5 @@
 <img src="https://i.ibb.co/gZnm3RH0/GEy-Hm0wb-IAAe4-G1.jpg" alt="GEy Hm0wb IAAe4G1" border="0">
-## Hi, my name is Dekisugi, but you can call me Thien or KoroSensei. 
+##Hi, my name is Dekisugi, but you can call me Thien or KoroSensei. 
 
 + Here's a bit about my profile:
 
